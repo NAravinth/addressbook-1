@@ -1,5 +1,3 @@
-diasdiasidasdiasd
-adiasdiasdiasd
 aidsasidaida
 disad
 isaiis
